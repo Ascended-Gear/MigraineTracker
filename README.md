@@ -26,4 +26,4 @@ You have full control over your data and can delete it at any time from your dev
 
 ## Contact
 
-For privacy-related questions, please contact us at [your email address].
+For privacy-related questions, please contact us at [sales@ascendedgear.net].
